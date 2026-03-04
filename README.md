@@ -56,7 +56,7 @@ Estou em busca da minha **primeira oportunidade na área de Dados**, onde eu pos
 ## 📬 Contato
 
 📧 Email: bruno4s.andrade@gmail.com  
-🔗 LinkedIn: www.linkedin.com/in/bruno-santos-b69710280  
+🔗 LinkedIn: https://www.linkedin.com/in/bruno-santos-b69710280  
 
 ---
 
